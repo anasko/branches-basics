@@ -1,1 +1,1 @@
-vsem privet
+vsem privet!
